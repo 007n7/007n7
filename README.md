@@ -1,16 +1,19 @@
 ## ❝ combat baby, come back, baby! ❞
 
-✦  javelin  /  bryce  /  royal
+✦  📀  javelin  /  bryce  /  royal
 ☆  minor  .  adults  dni  .  
-✦  homestuck  and  dandys  world  luvr
-☆  all  prns  including  neos  ,  no  they  /  them
+✦  ❤️  homestuck  and  dandys  world  luvr
+☆  all  prns  including  neos  ,  no  they  /  them  🌈
 
 BYI
 
 
 ☆  possible  osdd  and  other  things  such  as  autism  that  affect  the  way  i  socialize  with  others  .  IWC  ,  please  .
+
 ✦  i  hide  people  a  lot  but  it  usually  is  hardly  anything  personal  .  i  also  very  selectively  keep  people  on  my  friends  list  ,  so  i  might  not  accept  requests  .
+
 ☆  i  talk  about  my  favorite  things  a  LOT  .
+
 ✦  this  is  a  WIP !
 ☆
 ✦
