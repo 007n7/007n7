@@ -5,18 +5,13 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  go  by  javelin  ,  bryce  ,  or  royal  .
-♋️  all  pronouns  excluding  they  them 
-🦀  i  love  homestuck  and  roblox
+🩸  i  go  by  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  excluding  they  them ◞  i  love  homestuck  and  roblox
 
 ✦  **BEFORE  YOU  INTERACT  /  BOUNDARIES**
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  minor  
-♋️  possibly  plural/sys  amongst  other  things  that  affect  how  i  socialize  with  others  ,  please  iwc  .
-🦀  do  not  ask  me  for  my  accounts  (  ex.  discord  )
-🩸  do  not  be  sexual  with  me
+🩸  i  am  a  minor  ◞  possibly  plural/sys  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  iwc  ◞  do  not  ask  for  my  accounts  (  ex.  discord  )  ◞  do  not  be  sexual  with  me
 
 ☆  **DO  NOT  INTERACT**
 
