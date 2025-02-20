@@ -1,5 +1,5 @@
 ## ❝ combat baby, come back, baby! ❞
-![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
+![GIF image](https://github.com/user-attachments/assets/ee95fd5d-baa8-45dc-bc56-1c6ab4849cad)
 
 
 ☆  **ABOUT ME**
@@ -19,7 +19,7 @@
 ︶⊹︶︶୨୧︶︶⊹︶
 
 🩸  do  not  interact  with  me  if you  are  an  adult  ,  under  thirteen  ,  proshipper  /  darkshipper  ,  or  homestuck  fandom  —  i  wont  respond  to  interactions  
-
+![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
 <!--
 **LPS3155/LPS3155** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
