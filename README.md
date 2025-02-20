@@ -2,7 +2,7 @@
 ![GIF image](https://github.com/user-attachments/assets/ee95fd5d-baa8-45dc-bc56-1c6ab4849cad)
 
 
-☆  **ABOUT ME**
+☆  <ins>**ABOUT ME**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
@@ -10,17 +10,17 @@
 
 🩸  i  go  by  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  `excluding`  they  them ◞  i  love  homestuck  and  roblox  
 
-✦  **BEFORE  YOU  INTERACT  ┆  BOUNDARIES**
+✦  <ins>**BEFORE  YOU  INTERACT  ┆  BOUNDARIES**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  `minor`  ◞  suspected  `plural/sys`  amongst  other  things  that  affect  how  i  <ins>socialize  with  others<ins>  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
+🩸  i  am  a  `minor`  ◞  suspected  `plural/sys`  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
 
-☆  **DO  NOT  INTERACT**
+☆  <ins>**DO  NOT  INTERACT**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from <ins>those these apply to<ins>
+🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from those these apply to
 
 ![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
 <!--
