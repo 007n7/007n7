@@ -1,4 +1,5 @@
 ## ❝ combat baby, come back, baby! ❞
+![PNG image](https://github.com/user-attachments/assets/56397db1-d0e3-4421-b5be-86ac7f50d175)
 
 ☆  **ABOUT ME**
 
