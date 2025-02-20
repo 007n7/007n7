@@ -14,7 +14,7 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  minor  ◞  possibly  plural/sys  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  iwc  ◞  do  not  ask  for  my  accounts  (  ex.  discord  )  ◞  do  not  be  sexual  with  me
+🩸  i  am  a  minor  ◞  suspected  plural/sys  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  iwc  ◞  do  not  ask  for  my  accounts  (  ex.  discord  )  ◞  do  not  be  sexual  with  me
 
 ☆  **DO  NOT  INTERACT**
 
