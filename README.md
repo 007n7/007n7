@@ -14,13 +14,13 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  `minor`  ◞  suspected  `plural/sys`  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
+🩸  i  am  a  `minor`  ◞  suspected  `plural/sys`  amongst  other  things  that  affect  how  i  <ins>socialize  with  others<ins>  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
 
 ☆  **DO  NOT  INTERACT**
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from those these apply to
+🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from <ins></ins>those these apply to<ins>
 
 ![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
 <!--
