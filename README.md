@@ -8,7 +8,7 @@
 
 ![GIF image](https://github.com/user-attachments/assets/d4b4b3a5-fda8-42f5-9e57-82f2608790db)
 
-🩸  i  go  by  [javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  excluding  they  them](https://pronouns.cc/@soporificvanity) ◞  i  love  homestuck  and  roblox  ◞  fictkin/c'link  of  [1](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) ,  [2](https://hfjone.fandom.com/wiki/Bryce)  ,  [3](https://mspaintadventures.fandom.com/wiki/Dave_Strider)
+🩸  i  go  by  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  excluding  they  them ◞  i  love  homestuck  and  roblox  ◞  fictkin/c'link  of  [1](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) ,  [2](https://hfjone.fandom.com/wiki/Bryce)  ,  [3](https://mspaintadventures.fandom.com/wiki/Dave_Strider)
 
 ✦  **BEFORE  YOU  INTERACT  ┆  BOUNDARIES**
 
