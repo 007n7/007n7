@@ -4,17 +4,6 @@
 ☆  minor  .  adults  dni  .  
 ✦  ❤️  homestuck  and  dandys  world  luvr
 ☆  all  prns  including  neos  ,  no  they  /  them  🌈
-
-BYI
-
-
-☆  IWC.
-
-✦  i  hide  people  a  lot  but  it  usually  is  hardly  anything  personal  .  i  also  very  selectively  keep  people  on  my  friends  list  ,  so  i  might  not  accept  requests  .
-
-☆  i  talk  about  my  favorite  things  a  LOT  .
-
-✦  this  is  a  WIP !
 ☆
 ✦
 ☆
