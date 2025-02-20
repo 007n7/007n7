@@ -6,6 +6,8 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
+![GIF image](https://github.com/user-attachments/assets/d4b4b3a5-fda8-42f5-9e57-82f2608790db)
+
 🩸  i  go  by  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  excluding  they  them ◞  i  love  homestuck  and  roblox
 
 ✦  **BEFORE  YOU  INTERACT  /  BOUNDARIES**
@@ -18,7 +20,8 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  do  not  interact  with  me  if you  are  an  adult  ,  under  thirteen  ,  proshipper  /  darkshipper  ,  or  homestuck  fandom  —  i  wont  respond  to  interactions  
+🩸  do  not  interact  with  me  if you  are  an  adult  ,  under  thirteen  ,  proshipper  /  darkshipper  ,  or  homestuck  fandom  —  i  wont  respond  to  interactions
+
 ![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
 <!--
 **LPS3155/LPS3155** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
