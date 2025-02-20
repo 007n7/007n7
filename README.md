@@ -23,8 +23,10 @@
 🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from those these apply to
 
 ✦ <ins>**EXT.**<ins>
+
 ︶⊹︶︶୨୧︶︶⊹︶
-🩸  matching with my bro @funk4punks :3 
+
+🩸  
 
 ![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
 <!--
