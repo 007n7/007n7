@@ -1,8 +1,10 @@
 ## ❝ combat baby, come back, baby! ❞
 
-☆
-✦
-☆
+☆  **ABOUT ME**
+
+✦  **BEFORE  YOU  INTERACT**
+
+☆  
 
 <!--
 **LPS3155/LPS3155** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
