@@ -1,10 +1,8 @@
-<p align="center">
-  
   ## ❝ combat baby, come back, baby! ❞
 ![GIF image](https://github.com/user-attachments/assets/ee95fd5d-baa8-45dc-bc56-1c6ab4849cad)
 
 
-☆  **ABOUT ME**
+<p align="center"> ☆  **ABOUT ME**
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
