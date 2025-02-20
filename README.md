@@ -10,7 +10,7 @@
 
 🩸  i  go  by  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  excluding  they  them ◞  i  love  homestuck  and  roblox
 
-✦  **BEFORE  YOU  INTERACT  /  BOUNDARIES**
+✦  **BEFORE  YOU  INTERACT  ┆  BOUNDARIES**
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
