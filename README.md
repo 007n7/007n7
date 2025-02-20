@@ -1,9 +1,5 @@
 ## ❝ combat baby, come back, baby! ❞
 
-✦  📀  javelin  /  bryce  /  royal
-☆  minor  .  adults  dni  .  
-✦  ❤️  homestuck  and  dandys  world  luvr
-☆  all  prns  including  neos  ,  no  they  /  them  🌈
 ☆
 ✦
 ☆
