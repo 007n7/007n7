@@ -8,7 +8,7 @@
 
 ![GIF image](https://github.com/user-attachments/assets/d4b4b3a5-fda8-42f5-9e57-82f2608790db)
 
-🩸  collectively  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  `excluding`  they  them ◞  i  love  homestuck  and  roblox  
+🩸  [collectively  javelin  ,  bryce  ,  or  royal](https://rentry.co/infinitegarden)  ◞  all  pronouns  `excluding`  they  them ◞  i  love  homestuck  and  roblox  
 
 ✦  <ins>**BEFORE  YOU  INTERACT  ┆  BOUNDARIES**<ins>
 
