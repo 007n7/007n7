@@ -8,13 +8,13 @@
 
 ![GIF image](https://github.com/user-attachments/assets/d4b4b3a5-fda8-42f5-9e57-82f2608790db)
 
-🩸  [collectively  javelin  ,  bryce  ,  or  royal](https://rentry.co/infinitegarden)  ◞  all  pronouns  `excluding`  they  them ◞  i  love  homestuck  and  roblox  
+🩸  [collectively  javelin  ,  bryce  ,  or  royal](https://rentry.co/infinitegarden)  ◞  all  pronouns  `excluding`  they  them 
 
 ✦  <ins>**BEFORE  YOU  INTERACT  ┆  BOUNDARIES**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  `minor`  ◞  suspected  `plural/sys`  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
+🩸  i  am  a  `minor`  ◞  `plural/sys`  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
 
 ☆  <ins>**DO  NOT  INTERACT**<ins>
 
