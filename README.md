@@ -14,7 +14,7 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  `minor`  ◞  `plural/sys`  amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me
+🩸  i  am  a  `minor`  ◞  `plural/sys`  ( asking  whos  fronting  is  very  much  appreciated ^.^ ) amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me  
 
 ☆  <ins>**DO  NOT  INTERACT**<ins>
 
