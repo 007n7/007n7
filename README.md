@@ -1,4 +1,4 @@
-  ## ❝ combat baby, come back, baby! ❞
+  ## ❝ Combat baby, come back, baby! ❞
 ![GIF image](https://github.com/user-attachments/assets/ee95fd5d-baa8-45dc-bc56-1c6ab4849cad)
 
 
@@ -20,7 +20,7 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i  `wont`  respond  to  interactions from those these apply to
+🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i very likely `wont`  respond  to  interactions from those these apply to
 
 ✦ <ins>**EXT.**<ins>
 
