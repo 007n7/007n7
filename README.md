@@ -29,6 +29,8 @@
 🩸  
 
 ![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
+
+![](https://komarev.com/ghpvc/?username=007n7&color=red)
 <!--
 **LPS3155/LPS3155** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
