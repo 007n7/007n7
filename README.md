@@ -29,7 +29,7 @@
 
 🩸  
 
-![GIF image](https://github.com/user-attachments/assets/00c32370-d1f9-4171-9285-90066093df3b)
+![sprout-astro](https://github.com/user-attachments/assets/a0c369c3-cb24-4e67-a002-5a45734fed44)  
 
 ![](https://komarev.com/ghpvc/?username=007n7&color=red)
 <!--
