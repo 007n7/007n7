@@ -9,29 +9,29 @@
 
 ![berry-strawberry](https://github.com/user-attachments/assets/5ae43e92-fbfc-498d-acbd-bbcd6c8bea9d)
 
-🩸  collectively  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  `excluding`  they  them 
+🍓 collectively  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  `excluding`  they  them 
 
 ✦  <ins>**BEFORE  YOU  INTERACT  ┆  BOUNDARIES**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  i  am  a  `minor`  ◞  `plural/sys`  ( asking  whos  fronting  is  very  much  appreciated ^.^ ) amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me  
+☘   i  am  a  `minor`  ◞  `plural/sys`  ( asking  whos  fronting  is  very  much  appreciated ^.^ ) amongst  other  things  that  affect  how  i  socialize  with  others  ,  so  please  `iwc`  ◞  do  not  ask  for  my  `accounts`  (  ex.  discord  )  ◞  do  not  be  `sexual`  with  me  
 
 ☆  <ins>**DO  NOT  INTERACT**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i very likely `wont`  respond  to  interactions from those these apply to
+🍓  do  not  interact  with  me  if you  are  an  `adult`  ,  under  `thirteen`  ,  pro  /  dark`shipper`  ,  or  `homestuck`  fandom  —  i very likely `wont`  respond  to  interactions from those these apply to
 
 ✦ <ins>**EXT.**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-🩸  
+☘  
 
 ![sprout-astro](https://github.com/user-attachments/assets/a0c369c3-cb24-4e67-a002-5a45734fed44) ![ezgif-2930d2156dbb57](https://github.com/user-attachments/assets/2752fc1e-2383-4038-96f7-ab9ed588a616)
 
-
+me  and  bro  <3  /p
 
 
 
