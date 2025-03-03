@@ -1,12 +1,13 @@
   ## ❝ Combat baby, come back, baby! ❞
-![GIF image](https://github.com/user-attachments/assets/ee95fd5d-baa8-45dc-bc56-1c6ab4849cad)
+![dandys-world-astro](https://github.com/user-attachments/assets/86731a37-0d70-4f5c-b0ad-97cb9f821eb9)
+
 
 
 ☆  <ins>**ABOUT ME**<ins>
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-![GIF image](https://github.com/user-attachments/assets/d4b4b3a5-fda8-42f5-9e57-82f2608790db)
+![berry-strawberry](https://github.com/user-attachments/assets/5ae43e92-fbfc-498d-acbd-bbcd6c8bea9d)
 
 🩸  collectively  javelin  ,  bryce  ,  or  royal  ◞  all  pronouns  `excluding`  they  them 
 
