@@ -1,4 +1,6 @@
   ## ❝ Combat baby, come back, baby! ❞
+  ![aesthetic-green](https://github.com/user-attachments/assets/0dc4dfa1-7b95-4fee-8049-3a0bad5c5823)
+
 ![dandys-world-astro](https://github.com/user-attachments/assets/86731a37-0d70-4f5c-b0ad-97cb9f821eb9)
 
 
