@@ -9,8 +9,13 @@
 
 `NAME TAGS` 
 IWC . interact with caution
+
 W2I . whisper to interact
+
 DNIUD . do not interact unless i do
+
 DNIUF . do not interact unless friend (usually more specifically `felix`..)
+
 SYS/INTRJ . for ponies alters made for themselves, intrj specific to alters that are introjects
+
 TC . touch comfort
