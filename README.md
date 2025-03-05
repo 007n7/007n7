@@ -13,15 +13,15 @@ text
 
 text
 
-`NAME TAGS` 
+`COMMON NAME TAGS` 
 
-IWC . interact with caution
+IWC . interact with caution/care
 
 W2I . whisper to interact
 
 DNIUD . do not interact unless i do
 
-DNIUF . do not interact unless friend (usually more specifically `felix`..)
+DNIUF . do not interact unless friend
 
 SYS/INTRJ . for ponies alters made for themselves, intrj specific to alters that are introjects
 
