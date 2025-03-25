@@ -1,4 +1,4 @@
-homestuck fandom dni 😅 ✧ [strawpage](https://doubleo7n7.straw.page)
+homestuck fandom dni 😅 ✧ sign [strawpage](https://doubleo7n7.straw.page) + ata 
 
 
 
