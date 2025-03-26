@@ -2,7 +2,7 @@
 
 ![bigpicture](https://github.com/user-attachments/assets/2d4a65a8-d35e-4ae5-983b-5b6c16772eee)
 
-[![straw](https://github.com/user-attachments/assets/4d7c75d8-a218-48b7-b709-54f71ff84cad)](https://doubleo7n7.straw.page) [![ata](https://github.com/user-attachments/assets/83beee77-dfc7-4dba-bcba-a0db344af4dd)](https://007n7.atabook.org/) [![cc](https://github.com/user-attachments/assets/b5bcbaff-8fc1-449f-a6e3-acd1712889fe)](https://pronouns.cc/@toytale) ![unnamed](https://github.com/user-attachments/assets/cfecf2cb-17c0-421d-a691-9297dbe0d54f) ![unnamed](https://github.com/user-attachments/assets/a833280e-5b84-4336-ab14-38b21a2831d1)
+[![straw](https://github.com/user-attachments/assets/4d7c75d8-a218-48b7-b709-54f71ff84cad)](https://doubleo7n7.straw.page) [![ata](https://github.com/user-attachments/assets/83beee77-dfc7-4dba-bcba-a0db344af4dd)](https://007n7.atabook.org/) [![cc](https://github.com/user-attachments/assets/b5bcbaff-8fc1-449f-a6e3-acd1712889fe)](https://pronouns.cc/@toytale) [![june](https://github.com/user-attachments/assets/cfecf2cb-17c0-421d-a691-9297dbe0d54f)](https://github.com/007n7) [![davebot](https://github.com/user-attachments/assets/a833280e-5b84-4336-ab14-38b21a2831d1)](https://github.com/funk4punks)
 
 
 
