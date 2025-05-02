@@ -2,4 +2,4 @@
 
 ill remake this sometime Ermmmmmmm. sign my [atabook](https://007n7.atabook.org)
 
-![](https://komarev.com/ghpvc/?username=007n7)
+![](https://komarev.com/ghpvc/?username=007n7&color=red&label=crows)
