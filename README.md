@@ -1,9 +1,10 @@
 <div align="center">
   
-  ![dave-strider-homestuck](https://github.com/user-attachments/assets/cefe4516-7f0f-49d1-afb5-d04501c87890)
+![homestuck-john-egbert](https://github.com/user-attachments/assets/583b626d-5ece-43c5-8eb4-51c050593e40)
+
 
 ill remake this sometime Ermmmmmmm. sign my [atabook](https://007n7.atabook.org)
 
-![](https://komarev.com/ghpvc/?username=007n7&color=red&label=crows)
+![](https://komarev.com/ghpvc/?username=007n7&color=red&label=views)
 
 </div>
