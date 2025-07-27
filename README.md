@@ -18,5 +18,6 @@ sign my [atabook](https://007n7.atabook.org)
  
 ![GIF image](https://github.com/user-attachments/assets/59368af3-368c-4752-bf53-26c763a7178e)
 
-dnfi if you associate with egberted and thin ice if you have previously. no hard feelings there i just dont want that. i also block freely
+dnfi if you associate with egberted and thin ice if you have previously. no hard feelings there i just dont want that. i also block freely ![GIF image](https://github.com/user-attachments/assets/a44c43bc-000c-4f39-9872-e3392b8f5984)
+
 </div>
