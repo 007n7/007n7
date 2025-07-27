@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![0](https://i.postimg.cc/MTtg8rBJ/Untitled37-20250727124059.png){30%}
+![0](https://i.postimg.cc/MTtg8rBJ/Untitled37-20250727124059.png)
 
 sign my [atabook](https://007n7.atabook.org)
 
