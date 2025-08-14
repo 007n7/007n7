@@ -4,7 +4,9 @@
 
 <img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/3a3fa0a9-6dd1-4c86-aff1-af33e81bac9c" />
 
-$\color{912E00}{\textsf{ hi}}$
+$\color{912E00}{\textsf{bryce cojum + all pronouns exluding they/them syshost}}$
+
+$\color{912E00}{\textsf{read more below or at least my rentry, please :-)}}$
 
  <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/a363a505-c69e-4e49-9426-543b11ceae06" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/9cb4ee89-83c7-4b42-9856-4679951bef4f" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/89848d0c-6a62-4830-8697-1d0bdb28b725" />
 
