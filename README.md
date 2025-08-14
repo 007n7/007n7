@@ -1,5 +1,7 @@
 <div align="center">
 
+WIP!!!!!!!!!!Throws Up Everywhere.
+
 ![](https://komarev.com/ghpvc/?username=007n7&color=d06c2b&label=views)
 
 <img width="1280" height="216" alt="PNG image" src="https://github.com/user-attachments/assets/787f0834-80dc-4882-bbff-27fb06e45f3d" />
