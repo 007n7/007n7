@@ -1,8 +1,8 @@
 <div align="center">
- 
-<img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/3a3fa0a9-6dd1-4c86-aff1-af33e81bac9c" />
 
-![](https://komarev.com/ghpvc/?username=007n7&color=ff367c&label=views)
+![](https://komarev.com/ghpvc/?username=007n7&color=d06c2b&label=views)
+
+<img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/3a3fa0a9-6dd1-4c86-aff1-af33e81bac9c" />
  
 <img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/6d175f4b-cf07-4462-aa95-6e411f0539e0" />
 
