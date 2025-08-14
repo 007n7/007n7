@@ -3,7 +3,10 @@
 ![](https://komarev.com/ghpvc/?username=007n7&color=d06c2b&label=views)
 
 <img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/3a3fa0a9-6dd1-4c86-aff1-af33e81bac9c" />
- 
+
+ <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/a363a505-c69e-4e49-9426-543b11ceae06" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/9cb4ee89-83c7-4b42-9856-4679951bef4f" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/89848d0c-6a62-4830-8697-1d0bdb28b725" />
+
+
 <img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/6d175f4b-cf07-4462-aa95-6e411f0539e0" />
 
 <img width="1280" height="720" alt="PNG image" src="https://github.com/user-attachments/assets/4643adf6-ca21-40b4-856e-d67cf4dcd924" />
