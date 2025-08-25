@@ -6,7 +6,7 @@ WIP!!!!!!!!!!Throws Up Everywhere. No links in readme work dont kill me.
 
 <img width="1280" height="216" alt="PNG image" src="https://github.com/user-attachments/assets/787f0834-80dc-4882-bbff-27fb06e45f3d" />
 
-$\color{#912E00}{\textsf{bryce cojum + all pronouns exluding they/them syshost}}$
+$\color{#912E00}{\textsf{ }}$
 
  <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/a363a505-c69e-4e49-9426-543b11ceae06" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/9cb4ee89-83c7-4b42-9856-4679951bef4f" /> <img width="160" height="100" alt="PNG image" src="https://github.com/user-attachments/assets/89848d0c-6a62-4830-8697-1d0bdb28b725" />
  
